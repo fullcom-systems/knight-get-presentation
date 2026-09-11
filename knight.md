@@ -1,0 +1,1 @@
+Jsem nováček a hlásím se do armády válečníků.
