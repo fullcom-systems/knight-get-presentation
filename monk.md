@@ -1,0 +1,1 @@
+Oblékl jsem si roucho.
