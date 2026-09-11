@@ -1,1 +1,1 @@
-Našel jsem zbroj školy vlka
+Našel jsem zbroj školy vlka.
